@@ -1,1 +1,1 @@
-# Insotopic-Inc.
+# Isotopic-Inc.
