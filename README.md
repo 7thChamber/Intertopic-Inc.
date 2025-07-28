@@ -1,1 +1,1 @@
-# Intertopic-Inc.
+# Insotopic-Inc.
